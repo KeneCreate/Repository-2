@@ -1,1 +1,1 @@
-Hello! i'm coding with Git and
+Hello! Life is beautiful
